@@ -3,7 +3,7 @@ Hello!
 
 
 ## Writing
-[permalinks](/_posts/2020-08-08-first-post.md)
+[A sample post](/_posts/2020-08-08-first-post.md)
 
 ## Reading
 ### 2020
