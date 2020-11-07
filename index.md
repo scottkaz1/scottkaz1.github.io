@@ -3,7 +3,7 @@ Hello!
 
 
 ## Writing
-[Coming Out (and baskets(](/_posts/2020-11-07-coming-out.md)
+[Coming Out (and baskets)](/_posts/2020-11-07-coming-out.md)
 
 ## Reading
 ### 2020
