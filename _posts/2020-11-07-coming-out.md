@@ -1,4 +1,4 @@
-##Coming Out (and baskets)
+## Coming Out (and baskets)
 
 The first person I came out to was Eisa. My junior year of college I was an RA in a freshman dorm on Stanford's campus; Eisa was one of my co-staff. I remember sitting with them on a futon in my tiny room, staring up at twinkly lights hung beside long rows of photos on the wall---held by clothespins on twine.
 
