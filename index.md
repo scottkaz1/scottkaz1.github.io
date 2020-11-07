@@ -3,7 +3,7 @@ Hello!
 
 
 ## Writing
-[A sample post](/_posts/2020-08-08-first-post.md)
+[Coming Out (and baskets(](/_posts/2020-11-07-coming-out.md)
 
 ## Reading
 ### 2020
