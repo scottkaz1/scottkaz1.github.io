@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Coming Out (and baskets)"
+title: 'Coming Out (and baskets)'
 author: 'Scott Kazmierowicz'
 ---
 
