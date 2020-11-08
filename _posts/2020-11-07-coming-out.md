@@ -24,7 +24,7 @@ I did it about 6 months later, two days after Christmas. I told them my story, f
 
 --
 
-Six months after coming out to my family, I found myself back in Stanford stadium with my parents, reunited in that place to celebrate the graduation of my sister Sophia's boyfriend. Funnily enough, my boyfriend was graduating from Stanford too---at the same time and in the same ceremony.  So Sophia and I sat with my parents, watching our boyfriends graduate.
+Six months after coming out to my family, I found myself back in Stanford stadium with my parents, reunited in that place to celebrate the graduation of my sister Sophia's boyfriend. Funnily enough, my boyfriend was graduating from Stanford too, at the same time and in the same ceremony.  So Sophia and I sat with my parents, watching our boyfriends graduate.
 
 The commencement speaker that day was Tim Cook, Apple CEO and one of the most prominent openly gay men in America. I remember one subtle reference to his sexuality, describing how he was an 8 year-old boy in Alabama during the Stonewall riots: "What I would not know, for a long time, was what I owed to a group of people I never knew in a place I'd never been." 
 
