@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Coming Out (and baskets)"
+title:  "Coming Out (and baskets)"
 author: 'Scott Kazmierowicz'
 ---
 
@@ -8,9 +8,9 @@ The first person I came out to was Eisa. My junior year of college I was an RA i
 
 I remember the immense difficulty of saying those words, expressing to another person this excitement and fear long confined to my own mind: "I'm queer". Since that moment, about four years ago, those words haven't gotten much easier to say.
 
-One of the first things Eisa asked me in that conversation was to tell them about my first gay crush. With their question, I was instantly back in my Catholic parochial middle school. Every boy in the class was hitting puberty hard, and at the time, my classmate Mckenna was the object of their gaze. But I had quite the crush on her brother Brendan, who was a couple years older, athletic, and handsome. 
+One of the first things Eisa asked me in that conversation was to tell them about my first gay crush. With their question, I was instantly back in my Catholic parochial middle school. Every boy in the class was hitting puberty hard, and at the time, my classmate Mckenna was the object of their gaze. But I had quite the crush on her brother Brendan, who was a couple of years older, athletic, and handsome. 
 
-Telling Eisa that story made me feel so normal---two friends talking about an long-faded crush, not some shameful secret to be hidden. That moment with Eisa under the twinkly lights was the first step in a difficult journey towards seeing my queerness as good and beautiful. 
+Telling Eisa that story made me feel so normal---two friends talking about a long-faded crush, not some shameful secret to be hidden. That moment with Eisa under the twinkly lights was the first step in a difficult journey towards seeing my queerness as good and beautiful. 
 
 --
 
